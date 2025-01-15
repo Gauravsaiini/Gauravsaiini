@@ -1,3 +1,3 @@
 # Gaurav Saini 
 
-**` Indie Developer `**
+**` Self-Taught Developer `**
